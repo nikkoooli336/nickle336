@@ -1,1 +1,1 @@
-Providing exceptional patient care. Vwrifying insurance and collecting payments as needed. Scheduling appointments 
+Providing exceptional patient care. Verifying insurance and collecting payments as needed. Scheduling appointments 
